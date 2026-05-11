@@ -1,4 +1,4 @@
-#  
+#  smart Script for forsaken is the best forsaken Script, featuring undetectable and god mode. Safe and powerful for all your needs.
 
 
 
